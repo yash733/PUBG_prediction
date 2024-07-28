@@ -1,3 +1,5 @@
+## This was a very fun project, took a bit of time to covercome the troubles but yeh a bit close to perfection. 
+
 ![image](https://github.com/user-attachments/assets/1ff0ce5b-3784-43c1-9b87-7b9ed0dfe7d8)
 
 ![image](https://github.com/user-attachments/assets/5fcbc7a6-afbf-48cf-a8a0-27155810026f)
